@@ -1,2 +1,1 @@
-Curriculum Vitae 
-Yana Danovskaya
+CURRICULUM VITAE by Yana Danovskaya
